@@ -1,4 +1,4 @@
-# 🔲 Dangerous RAT 2020 V5 Cracked 🔲
+# Dangerous RAT 2020 V5 Cracked
 
 ![Image 1](https://i.postimg.cc/Pq3DNqGC/Screenshot-1.png)
 
